@@ -1,0 +1,1 @@
+It said over 38,000 tonnes of Maggi Noodles have been destroyed till September 1, 2015 at incinerators of the notified cement plants, keeping in view environmental requirements. The company said the destruction was done by following a procedure agreed between it and food regulator FSSAI.21-Sep-2016
